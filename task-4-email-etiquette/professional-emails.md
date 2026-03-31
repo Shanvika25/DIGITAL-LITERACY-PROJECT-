@@ -7,8 +7,10 @@ I am writing to respectfully request an extension for the upcoming assignment du
 Despite my best efforts, I am facing unforeseen circumstances that have impacted my ability to complete the work by the deadline.
 I would greatly appreciate it if you could grant me an extension until 03/04/26. This additional time will allow me to submit a thorough and well-prepared assignment that meets the expected standards.
 
-Thank you very much for considering my request. I value your guidance and understanding, and I assure you that I remain committed to maintaining the quality of my academic work.
-Sincerely,
+Thank you very much for considering my request. I value your guidance and understanding, and I assure you that I remain committed to maintaining the quality of my academic work.<br>
+
+Sincerely,<br>
+
 Shanvika Raj
 25MEI10114
 <br>
